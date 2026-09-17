@@ -1,0 +1,2 @@
+# slabopeople.ru
+slabopeople
